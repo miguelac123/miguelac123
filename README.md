@@ -1,4 +1,4 @@
-👋 Hi, my name is Miguel
+👋 Hi, my name is Miguel!
 
 I have 4 years of experience in customer service and technical support, and a BA in psychology. I really enjoy helping others and making their lives easier. My passion for technology and psychology has led me to UX research, a field that I look forward transitioning into.  
 
